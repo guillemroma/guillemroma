@@ -6,6 +6,6 @@ a) I can easily measure the output of my work
 
 b) I can challenge my analytical skills and my logic thinking on a daily basis
 
-I am genuinely grateful to Meditation and Bitcoin for that. **Meditation** has helped me dealing better with my emotions and the always present frustration, dissolve my ego (yet not completely, I need to keep practicing) and enjoy the everyday little accomplishments. **Bitcoin** has helped me by lowering my time preference and develop exponential thinking.
+I am genuinely grateful to **Meditation** for that since it has helped me dealing better with my emotions and the always present frustration, dissolve my ego (yet not completely, I need to keep practicing) and enjoy the everyday little accomplishments.
 
 Wanna work together? Email me at: guillemroma.lopez@gmail.com
