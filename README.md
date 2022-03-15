@@ -1,6 +1,6 @@
 Hello world 👋
 
-I am a really passionate individual, eager to learn more and more every day. I started my journey as a Financial Auditor 🤵, then I moved to M&A 🔎 and after that I took a well-deserved sabbatical 🕉️ When I came back I became a Programmatic Trader 🔥 and, after a test and learn period of +8 years, I feel extremely fortunate to have fallen in the software engineering rabbit hole 💻; a fast-paced industry ⚡ that is in constant change, where:
+I am a really passionate individual, eager to learn more and more every day. I started my journey as a Financial Auditor 🤵 then I moved to M&A 🔎 and after that I took a well-deserved sabbatical 🕉️ When I came back I became a Programmatic Trader 🔥 and, after a test and learn period of +8 years, I feel extremely fortunate to have fallen in the software engineering rabbit hole 💻 a fast-paced industry ⚡ that is in constant change, where:
 
 a) I can easily measure the output of my work 
 
