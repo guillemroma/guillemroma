@@ -10,4 +10,4 @@ After a test and learn period of +8 years, I feel extremely fortunate to have fa
 
 I am genuinely grateful to Meditation for accompanying me along the journey, helping me deal with all the ups and downs as well as teaching me how to appreciate the everyday little accomplishments
 
-Wanna work together? Email me at: 👉 guillemroma.lopez@gmail.com 👈
+Let's get in touch: 👉 guillemroma.lopez@gmail.com 👈
