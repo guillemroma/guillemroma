@@ -1,6 +1,6 @@
 Hello world 👋
 
-I am a really passionate individual, eager to learn every day. I started my journey as a Financial Auditor 🤵 I then switched to M&A 🔎 until I took a sabbatical 🕉️ When I came back, I started as a Programmatic Trader, but I came across with programming...
+I am a really passionate individual, eager to learn every day. I started my journey as a Financial Auditor 🤵 I then switched to M&A 🔎 until I took a sabbatical 🕉️ When I came back, I started as a Programmatic Trader... but I came across with programming
 
 After a test and learn period of +8 years, I feel extremely fortunate to have fallen in the software engineering rabbit hole 💻 a fast-paced industry ⚡ that has exactly what I need:
 
